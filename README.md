@@ -1,1 +1,0 @@
-# demoji-privacy-policy
